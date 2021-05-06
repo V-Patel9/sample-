@@ -1,4 +1,4 @@
-Student Name
+Viharika Patel
 
 
 Project #1
